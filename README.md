@@ -212,4 +212,4 @@ Six-Guns is available as a full free version, with all features and updates incl
 Ready to embark on your Wild West adventure? Download **Six-Guns free** today and face the dangers that await you!
 
 ---
-**Last updated:** 2026-10-09 08:35:24 UTC
+**Last updated:** 2026-10-09 15:53:00 UTC
